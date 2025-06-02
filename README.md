@@ -1,4 +1,4 @@
-# Hi there, I'm thinzzelle 👋
+# Hi there, I'm David 👋
 
 🎓 **Recent Computer Science Graduate**  
 _Bachelor's degree from California State University, Fresno_
